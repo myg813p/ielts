@@ -1,0 +1,16 @@
+### Antibiotic Resistance on the Rise
+
+#### A
+A legacy of decades of overuse, antibiotic resistance is spreading across the globe and has been recognised by professionals as one of the most dangerous threats to global health and development. Antibiotic resistance arises when bacteria mutate and become impervious to the effects of antibiotics, either through genetic mutation or through a gradual build-up of resistance. The bacteria that emerge are extremely difficult to treat, and in some cases no medicines exist to counter them. This is becoming such a pressing problem that the World Health Organisation has described it as 'one of the biggest threats to global health', and has introduced a global action plan in an attempt to counter it.
+
+#### B
+Antibiotic resistance emerged because of decades of misuse due to the widespread availability and a lack of education about the capabilities of these drugs. This was exacerbated by the unregulated sale of antibiotic drugs over the counter, without a doctor's prescription. It is estimated that around half of antibiotic use is unnecessary. For example, many people take antibiotics for the common cold even though they have no impact on viruses. The overuse of antibiotics causes the development of stronger bacteria, as antibiotics kill off all the weak bacteria, allowing the stronger strains to multiply and develop immunity to the drugs that are designed to treat them.
+
+#### C
+These strains of bacteria are known as multidrug resistant, or superbugs, and are a major haeath risk throughout the world. It is estimated that millions die every ear from these drug resistant bacteria, and the number of infections that are untreatable is growing. A few common bacterial infections, including pneumonia, E. coli, and gonorrhea, are now developing immunity to antibiotics and researchers are struggling to find alternative treatments. it has been predicted that, if uncontrolled, antibiotic resistant bacteria will kill up to 300 million people by 2050.
+
+#### D
+It is not just misuse in humans that contributes to antibiotic resistance but also excessive prescription for animals. It is estimated that 80 per cent of antibiotics sold in the United States are given to animals, and they are generally not given to sick animals. Indeed, it is often standard practice in large farms to mix antibiotics with general feed to improve the animals' health and well-being. As with humans, this acts as a catalyst for the development of drug resistant bacteria, which can spread into food products and infect humans.
+
+#### E
+The fight against antibiotic resistance is a global health priority, and research laboratories around the world are working on solutions to the issue. Developing new types of antibiotics is no longer a feasible option, as the drug resistant strains of bacteria are appearing at such a rate that countering them directly with new antibiotics is impossibl. However, there has been a recent breakthrough that could be significant; scientists have discovered a molecule that reverses antibiotic resistance in multiple strains of bacteria. This could allow doctors to use medicines that are currently thought to be useless. This molecule has yet to be tested on humans, so it is still at an early stage of development. It may nonetheless be the best hope against this increasing global health threat.

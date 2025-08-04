@@ -1,0 +1,11 @@
+#### A
+The indigenous communities of the United States' Pacific Northwest practised a ceremonial distribution of property, known as the potlatch, to rid themselves of spiritual burdens brought about by ownership of material objects. These communal events usually centred on a large feast to reflect the bounty of the hunting season. These feasts featured large amounts of salmon or seal meat, along with other foods, and were usually attended by community elders, faith healers, and visitors from great distances. In honour of these respected guests, the hosts served the meals on special hand-carved and painted platters that were much more ornate than those used for everyday situations.
+
+#### B
+The potlatch was also celebrated with somng and dance. These activities were meant to honour relatives, celebrate relationships and give thanks for abundant harvests. Since the danes were each performed by individual families, they also provided them with the opportunity to display their unique heritage. In addition, some of the singers and dancers wore masks depicting supernatural beings throughout the potlach. These were meant to honour the beings that had bestowed the song and dance upon the particular family.
+
+#### C
+However, perhaps the most important aspect of the potlatch was gift giving. This act not only showed generosity, but also allowed the tribe members to relinquish material possessions. By doing this, they could replay debts, show appreciation for help, and ensure continued relationships. All of these activities reinforced the communal values of the society. The tribe members would, therefore, trade canoes, blankets, and other items. If they happened to be too big to move or too valuable, they were simply destroyed.
+
+#### D
+Despite the great cultural importance of these events, the European governments of the American colonies did not appreciate them. In order to force the trivbe members to assimilate into their new societies, the governments banned the practice. This didn't, of course, eradicate the ceremonies. They were simply performed in secret until the ban was lifted in the mid-1900s.

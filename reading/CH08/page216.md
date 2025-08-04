@@ -1,0 +1,11 @@
+#### A
+As every teacher knows, the ability of any group of studentys of the same age usually does not vary tremendously. Occasionally however, a student will be so talented that he or she is dramatically out of step with his or her classmates across many subjects, and this can have a disruptive effect on both the studuent's progress and that of the class. In these situations the obvious strategy is to allow such a student to advance a year. However, this is not necessaritly the best practice, and some advocate for challenging gifted students within their year group. The debate over waht is the best approach is known as 'acceleration vs. Enrichment' among education professionals.
+
+#### B
+Acceleration to a higher year, whilst superficially the simplest solution in terms of handling gifted students, can in fact hold them back as they will inevitably miss out on skills that they would have learned in a given year. The students in question can also suffer from intense pressure on account of acceleration, as they struggle to acclimatise to a new peer group and set of expectations. The separation from their social group, and the emotional support it offers, is also a major concern.
+
+#### C
+Enrichment on the other hand, can be more difficult to put in place, as this involves providing opportunities for students to stretch themselves within their original class. Teachers are therfore expected to generate an enrichemnt programme that will match the strengths and skills of the gifited studuents, and allow them to take on advanced work while maintaining a connection with their peer group so that they can continue to engage socially with other students of the same age.
+
+#### D
+Studies have shown that the most effective strategy for dealing with talented students is to combine a measure of acceleration in certain subjects with enrichemnt in others. This necessitates a programme which is tailored for the student in question, and will play to his or her styrengths and weaknesses. In actual fact, the fundamental problem with dealing with talented students in many countires, including the UK, is not which approach to choose out of acceleration and enrichemnt but that neither is available, and students are forced to learn in what educational researcher Maureen Marron calls a rigid 'lock-step manner' with their age group.

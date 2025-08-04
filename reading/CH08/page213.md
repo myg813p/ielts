@@ -1,0 +1,8 @@
+#### A
+German alchemist Henning Brandt made an important discovery in the mid-1600s. By evaporating urine and heating the resulting residue, he distilled a new vapour, which he thought to be the Philosopher's Stone - a sbustance with which he could turn base metals into gold. Unfortunately for Brandt, the Philosopher's Stone was just a myth and what he had actually discovered was one form of the element phosphorus.
+
+#### B
+Through later experimentation, scientists amde additional discoveries about the different froms of Brandt's mineral. For instance, in its purest state, white phosphorous, the mineral is so combustible that it will burst into flames if it comes into contact with air, so it must be kept underwater. Also, it can only be handled with tools, as it is toxic and can cause severe burns. These properties may make white phosphorous seem useless, but they actually make it important in one field - munitions. Several incendiary weapons have been developed using this form of the element.
+
+#### C
+For most other uses, white phosphorous must be converted into the more stable red form  by heating. The red phosphorous will not spontaneously ignite like the white form, but it is not without its dangers, such as producing toxic vapours when heated. Nonetheless, its use is quite common. We can see this in our own homes. The red material on the head of matches is a form of red phosphorous. Red Phosphorous can also  be ground into a powder and used as a fertiliser.

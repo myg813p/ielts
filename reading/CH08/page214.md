@@ -1,0 +1,8 @@
+#### A
+Carbon is found all around us today - in the air, the earth, and in all living things - but it is neither created nor destoryed. This is due to a process called the  carbon cycle. About 99 per cent of Earth's carbon is trapped in the rocks of its crust, but through this process, it is slowly released into the atmosphere. Palnts can then take in the carbon, as carbon dioxide, for photosynthesis and pass it along to animals when it is consumed. Eventually, as these animals die and their bodies decompose, the carbon is returned to the soil.
+
+#### B
+An often-overlooked aspect of the carbon  cycle is that oceans are a highly significant factor in determining the level of carbon in the atmosphere. Our oceans act as large carbon sinks, or storage units. This occurs because carbon dioxide enters the ocean from the atmosphere, undergoes a chemical reaction, and becomes trapped there. Unfortunately, since the Industrial Revolution, the burning of fossil fuels has greatly increased the amount of carbon  dioxide has remained the same. This is resulting in a build-up of carbon dioxide in the atmosphere and leading to higher golbal temperatures.
+
+#### C
+The increased carbon dioxide levels in the oceans since the Industrial Revolution are also leading to problems for marine life. The chemical reactions that occur as carbon dioxide is dissolved into the seawater lowers the pH level of water at the surface. This acidification slows the growth of microscopic marine life such as plankton and coral. These tiny organisms form the base of the marine food web, so the acidification can have a negative impact on the entire system. And, since we also rely on the marine food web, our food supply is threatened as well.
