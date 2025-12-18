@@ -42,4 +42,13 @@ Yes, I think schools should offer health classes to students. A basic knowledge 
 Recently, I tried a taco for the first time in my life.
 I had it last month when my friends and I visited a famous restaurant in Itaewon, a neighborhood where people from all over the world go to spend time. When we met up, one of my friends suggested going to his favorite Mexican restaurant. Not knowing what to order, I asked him and he told me I should have a taco.
 I fell in love with tacos immediately. Although the taco I ordered was quite spicy, I could't get enough of the unique flavors from the sauces and spices. The beef was moist and tender, and the melted cheese and fresh vegetables on top complemented it perfectly. The combination was out of this world.
+
 Since I had never tried Mexican food before, I was not expecting much. But everything about that taco blew my mind. I'm so glad I tried it. I think it's my favorite foreign dish now. Just thinking about it makes my mouth water!
+
+5. Do you think the responsiblility for teaching children healthy eating habits lies with parents or with teachers?
+Both parents and teachers have a major influence on children. However, when it comes to teaching them how to eat healthily, parents shoud be responsible. This is because children mostly have meals with their parents, not their teachers. Therefore, parents have more opportunities to keep an eye on their children's eating habits and correct any unhealthy ones.
+
+6. Who tries new and exotic food more often, the elderly or the young?
+I'd say that young people are more likely to give new foods a try. This is because young people are generally more adventurous and willing to venture outside their comfort zone. They might view eating something new as fun. In contrast, elderly people are not that curious or daring. They are used to eating certain foods and are satisfied with them.
+
+   
