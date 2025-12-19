@@ -41,5 +41,17 @@ There are significant differences between modern and traditional buidings. First
 3. Does a regin's climate affect the way buildings are consturcted?
 Yes, it does influence the area's buildings. For example, in tropical areas where there is a lot of rainfall, buildings usually have sloped roofs. This helps water fall down more effectively. If the roofs were flat, rain would sit on the roof and that would be problematic.
 
+4. Describe your ideal future home.
+My ideal future home would have to be very big because I've wanted to live in a large home with my whole family ever since I was young. It would have big windows, too. That would let in tons of natural light and fresh air and help me to wake up in the morning. I also want to have a pool in the backyard, so I could invite my friends over for pool parties. In addition, it should have a gorgeous garden where my mom could spend her time. Lastly, a large and cozy living room would be a must for our family quality time.
+I don't really care about the location, as long as it's near the beach. But a city like Miami, SantaBarbara, or Busan would be great.
+As I mentioned earlier, I want my whole family, inclouding my grandparents, to live there with me.
+Living with my extended family has always been my dream, and living in this house would make my dream come true. I'm sure my home would always be filled with laughter and joy.
+
+5. Do people prefer living in apartments or houses in your country? Why?
+I think people in my country generally prefer to live in apartments. This is because apartment buildings usually have better security. For instance, there are CCTV cameras in every hallway of an apartment building. You can find guards on duty as well. Furthermore, modern apartment buildings are often equipped with various amenities, like pools, gyms, and convenience store. Having these things in the complex makes life more convenient.
+
+6. Some poeple prefer living in a small house to living in a big house. Why is that?
+The specific reasons would be different from person to person, but I think people prefer smaller homes because they are far easier to maintain. They require much less time and effort to clean, and repairs are usually relatively minor. Also, smaller homes are less expensive. This makes them a much better choice for people who are on a budget.
+
 
 
