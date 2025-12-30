@@ -39,4 +39,16 @@ There are multiple advantages to traveling abroad. First, international travel p
 3. What are the advantages and disadvantages of a long journey?
 The positive part about long journeys is that they give you the chance to experience a place more thoroughly, which means you get to see and learn more things. On the ohter hand, you might only get a glimpse of the place if you're only there for a short time. One of the downsides is that you can sometimes get really lonely. If you're away from your friends and family for a long time, you might start to miss them. You could end up feeling isolated and homesick.
 
+4. Describe a journey that you make reqularly.
+There are several journeys that I make on a regular basis, but my trip to work is the first one that comes to mind. I go to my office every weekday, but I sometimes go there on weekends as well if I have work to do.
+My workplace is in Pangyo, which is an area packed with IT companies. It's kind of like the Korean Silicon Valley.
+To get to work every morning, I roll myself out of bed when my alarm starts buzzing at 6 A.M. Since I have to be in the office at 8 A.M. sharp, I need to start getting ready this early. When I'm ready, I take the subway to work. The nearest station is about a ten-minute walk from my house and the entire trip takes an hour.
+Speaking frankly, I have to say that it's not my favorite trip. That's because I have to stand the whole time as there are no empty seats during ruch hour. Due to this exhausting commute, I'm sometimes worn out when I finally arrive at work. But these days, I try to make the time I spend traveling to work more enjoyable by listening to educational potcasts or watching videos in English.
+
+5. Do people like air travel?
+It depends on the individual's preferences, but I think most people enjoy traveling by plane. That's because it's the fastest way to get anywhere. For example, traveling from Korea to Japan takes an entire day by ship, but it's less than two hours by plane. In addition, airlines offer great services. Flight attendants take care of all their passengers' needs. Plus, many airlines now offer in-flight entertainment systems with movies, TV shows, and video games.
+
+6. Why do people want to have their own cars?
+I think people purchase cars to save time. If you own a car, you don't have to wait for a bus or the subway, and you don't have to sit through multiple unnecessary stops. Plus, it is far more comfortable to drive your own car. To be specific, when you drive, you don't have to endure crowded buses and subway cars in which you're squashed between strangers.
+
 
