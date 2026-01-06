@@ -2,7 +2,7 @@
 
 PART I
 
-1. Which region of your contry do you live in?
+1. Which region of your country do you live in?
 I live in the northwestern part of South Korea in Seoul, the country's captal. Even though it is just one of the many cites in Korea, almost one-fifth of the Korean population resides there. The city is divided by a river, and my apartment is in one of the districts north of it.
 
 2. What are some good things about where you live?
@@ -29,16 +29,16 @@ I don't think that would be a good idea. Since I have naver lived in the country
 PART 2&3
 
 1. Describe your favorite place in your city.
-There are many great places to go in my city, but my favorite one is the public library. It is located near my house. In fact, it only takes 5 minutes by bus to get there. Sice it is located right next to the bus stop, I don't have to walk for very long.
-I go there envery Saturday. Sometimes, I also visit during the week, when I need books to refer to for my work.
-Whenever I visit, I return books that I have finished reading and borrw some more. I can take out books for free as long as I'm a resident of my city. They'll even let me watch VODs in the computer room.
-There are many reasons why the public library is my favorite place. Firs, it's quiet. As you know, it's hard to find anywhere to relax when you live in a city. However, in the library, I can rest or study without being distracted by nose. Also, I can read many books. I'm a bookworm, and reading is my favorite hobby. Being able to read many different kinds of boos for free is great for me.
+There are many great places to go in my city, but my favorite one is the public library. It is located near my house. In fact, it only takes 5 minutes by bus to get there. Since it is located right next to the bus stop, I don't have to walk for very long.
+I go there every Saturday. Sometimes, I also visit during the week, when I need books to refer to for my work.
+Whenever I visit, I return books that I have finished reading and borrow some more. I can take out books for free as long as I'm a resident of my city. They'll even let me watch VODs in the computer room.
+There are many reasons why the public library is my favorite place. First, it's quiet. As you know, it's hard to find anywhere to relax when you live in a city. However, in the library, I can rest or study without being distracted by nose. Also, I can read many books. I'm a bookworm, and reading is my favorite hobby. Being able to read many different kinds of books for free is great for me.
 
 2. Do you think there should be more places to enjoy leisure activities in cities?
 Not really, It seems there are already a number of areas to enjoy leisure activities. For example, like any large city, Seoul has tons of gyms, libraries, theaters, and shopping centers. These are all great for people looking for things to do. Of course, it would be great if we had even more leisure facilities, but I don't think that is essential.
 
 3. Do you think leisure facilities should be free for the public?
-I know that people have a lot of different opinions aboult this, but I think recreation centers should be made available to the public without charge. This is because these places make people these days don't get enough rest due to their heavy workloads. However, if leisure facilities were offered for free, people would visit them more, and it would result in their enhanced mental and pyhysical health.
+I know that people have a lot of different opinions about this, but I think recreation centers should be made available to the public without charge. This is because these places make people these days don't get enough rest due to their heavy workloads. However, if leisure facilities were offered for free, people would visit them more, and it would result in their enhanced mental and pyhysical health.
 
 4. Describe your neighbourhood.
 My neighborhood is Jingo. Which is located in northern Seoul.
@@ -50,4 +50,4 @@ Despite these downsides, I love my neighborhood for several reasons. First, ther
 One major difference is that city life is more convenient. Cities have public transportation and retail outlets all over the place, so it is easy to get around and buy whatever you need. Unfortunately, these things aren’t as accessible in the countryside. However, people who live in rural areas often enjoy more peaceful and healthier lives. This is because the air outside of cities is much cleaner and there is a lot less noise.
 
 6. What sorts of problems do most cities have?
-Cities face many different kinds of problems, but I think the biggest  concern is overcrowding. This is a huge problem because it causes traffic jams as well as discomfort for people who have to commute using public transportation. In addition, overcrowding causes severe housing problems. It especially makes real estate prices skyrocket.
+Cities face many different kinds of problems, but I think the biggest concern is overcrowding. This is a huge problem because it causes traffic jams as well as discomfort for people who have to commute using public transportation. In addition, overcrowding causes severe housing problems. It especially makes real estate prices skyrocket.
