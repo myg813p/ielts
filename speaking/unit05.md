@@ -36,7 +36,7 @@ There are a couple of reasons why this song is memorable. First, my brother and 
 There are several types of music that are popular in Korea at the moment. One of them is pop music. I think Koreans like pop music because it's fun to sing along to, especially when you're at a karaoke room with friends. Koreans love to listen to rap music as well. It's gotten extremely popular, especially with young people, as TV talent shows searching for rap stars have become increasingly common.
 
 3. Are there any differences between the music young people like and the music old people like in your country?
-Yes, the music that the elderly listen to in Korea is torally different from the music young people listen to. Many senior citizens listen to trot music. This is a traditional style of music. I guess it's a bit similar to American country music in some ways. Meanwhile, today's youth enjoy rap and hip hop music. I think it's because Western culture has had a big influence on Korea in the last couple of decades.
+Yes, the music that the elderly listen to in Korea is totally different from the music young people listen to. Many senior citizens listen to trot music. This is a traditional style of music. I guess it's a bit similar to American country music in some ways. Meanwhile, today's youth enjoy rap and hip hop music. I think it's because Western culture has had a big influence on Korea in the last couple of decades.
 
 4. Describe a photograph that you like.
 I've probably seen thousands of photographs in my life. However, my favorite one is a family portrait that was taken at a photo studio last year to celebrate my parents' wedding anniversary.
