@@ -2,7 +2,7 @@ Unit 9 Food & Health
 
 PART 1
 1. What kind of snack do you like?
-I'm practically in love with potato chips. They are so tasty taht I could eat them all day, every day. Although they come in many different flavors nowadays, my favorite has always been original.
+I'm practically in love with potato chips. They are so tasty that I could eat them all day, every day. Although they come in many different flavors nowadays, my favorite has always been original.
 
 2. Do you eat different snacks depending on the time of the day?
 Sure. I usually like to eat nuts or fresh fruits, such as strawberries, bananas, or kiwis, in the morning. However, when I get hungry in the afternoon, around 3 to 4, I usually grab a bag of chips or a candy bar.
@@ -27,10 +27,10 @@ Fried chicken certainly is. It is a very popular food to have delivered to your 
 
 PART 2&3
 
-1. Describve something you do for your health.
+1. Describe something you do for your health.
 I do several things to ensure that I remain healthy. However, I think the most important of them is eating well. I totally agree with the old saying, "You are what you eat", so I avoid putting processed foods into my body. This means that I don't consume oily fried foods or sugary drinks and snacks. Instead, I drink a lot of organic smoothies and eat balanced meals consisting primarily of whole grains and green vegetables. Morever, I never forget to take my three daily vitamin supplements.
 I initially started this diet because my immune system was weak, and I weighed a lot more than I do now. It seemed like I was always catching colds, so I decided to do something about it. I did some research on healthier diets and made up my mind to try one myself. It's been about a year now, and I've never felt better.
-I've seen a lot of benefits from my new diet. Not only have I lost weight, but I also haven't had a cold since starting it. I've also reduced my expenses. I used to spend too much money on snacks and fast food, but now I save it istead.
+I've seen a lot of benefits from my new diet. Not only have I lost weight, but I also haven't had a cold since starting it. I've also reduced my expenses. I used to spend too much money on snacks and fast food, but now I save it instead.
 
 2. What do people usually do to stay healthy in your country?
 There are a number of things that people do to ensure their well-being in Korea. First, they follow a healthy diet. For example, they stay away from fast food as much as possible because it is usually high in fat and carbohydrates. instead, their meals mostly consist of vegetables, whole grains, and fruit. They also exercise on a regualr basis. Some people go to the gym, join exercise classes, and hike.
@@ -42,7 +42,6 @@ Yes, I think schools should offer health classes to students. A basic knowledge 
 Recently, I tried a taco for the first time in my life.
 I had it last month when my friends and I visited a famous restaurant in Itaewon, a neighborhood where people from all over the world go to spend time. When we met up, one of my friends suggested going to his favorite Mexican restaurant. Not knowing what to order, I asked him and he told me I should have a taco.
 I fell in love with tacos immediately. Although the taco I ordered was quite spicy, I could't get enough of the unique flavors from the sauces and spices. The beef was moist and tender, and the melted cheese and fresh vegetables on top complemented it perfectly. The combination was out of this world.
-
 Since I had never tried Mexican food before, I was not expecting much. But everything about that taco blew my mind. I'm so glad I tried it. I think it's my favorite foreign dish now. Just thinking about it makes my mouth water!
 
 5. Do you think the responsiblility for teaching children healthy eating habits lies with parents or with teachers?
@@ -52,3 +51,4 @@ Both parents and teachers have a major influence on children. However, when it c
 I'd say that young people are more likely to give new foods a try. This is because young people are generally more adventurous and willing to venture outside their comfort zone. They might view eating something new as fun. In contrast, elderly people are not that curious or daring. They are used to eating certain foods and are satisfied with them.
 
    
+
