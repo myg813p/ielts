@@ -40,7 +40,7 @@ The best thing about having a pet is that it is good for your mental health. Whe
 3. What kind of pet is most common in your country?
 There are many different kinds of pets in Korea, but dogs are the most common. People here enjoy having dogs because they are loyal. Dogs always wait at the door for their owners to come home. Plus, they put people in a good mood. For example, when you come home after a long day, your dog comes running to you and wants to play. This makes it hard to stay angry or sad and makes you feel better.
 
-4. Describe an occasion when the wather disrupted your plans.
+4. Describe an occasion when the weather disrupted your plans.
 I'd like to tell you about a trip last year, which didn't go as I expected. My family and I had planned a trip to Jeonju, a city famous in Korea for its historic buildings and traditional foods. We'd spent weeks planning the trip and had already reserved our hotel, dinner, and some tours of the old buildings. So, everyone was really excited.
 Unfortunately, on the day we were supposed to leave, it was raining cats and dogs. The rain was so heavy that we couldn't see in front of our car.
 Therefore, we had no choice but to cancel the trip. We couldn't risk driving under those conditions. Instead, we just stayed home and watched a movie.
@@ -51,6 +51,7 @@ Yes, people often talk about the weather. First, talking about the weather keeps
 
 6. What do people do in each type of weather?
 People do several different things according to the weather. On warm and sunny days, people like to spend their time outside. They have picnics or take strolls in parks. I guess that's because people generally like to bathe in the sun. On the other hand, people tend to stay indoors when it's rainy and gloomy. They sometiems watch television or read books.
+
 
 
 
