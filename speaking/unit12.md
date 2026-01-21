@@ -2,14 +2,14 @@ UNIT 12 Special Events
 
 PART 1
 
-1. Do you think birthdays are imoprotant?
+1. Do you think birthdays are important?
 I think they are significant. Birthdays give me a chance to express how much I love and appreciate my friends and family members. Plus, I think birthdays are great occasions for people to get together. For example, my friends and I are normally too busy to see one another, but we make time to have dinner whenever it's someone's birthday.
 
 2. Who do you usually spend your birthday with, friends or family?
 Well, I spend time with both. During the day, my friends normally take me to a fancy restaurant for a meal, then to a cafe or a bowling alley, depending on my mood. After that, I usually go home to spend the evening with my parents.
 
 3. How do children in your country spend their birthdays?
-According to my sister who has an 8-year-old kid, Korean children usually invite friends to their house to have a birthday party. At the party, the children eat their favorite foods and receive gifts from their family and friends. They also make a wish amd blow out the candles on their birthday cake.
+According to my sister who has an 8-year-old kid, Korean children usually invite friends to their house to have a birthday party. At the party, the children eat their favorite foods and receive gifts from their family and friends. They also make a wish and blow out the candles on their birthday cake.
 
 4. Do you like to give gifts?
 Sure, I love to give little things to people around me, even when there's nothing to celebrate. The things I like to give are small practical items, such as pens and free drink coupons. I give these to show people that I appreviate and care about them. Plus, I feel good when they thank me for the gifts.
@@ -30,7 +30,7 @@ PART 2&3
 
 1. Describe a memorable wedding that you attended.
 I've attended several weddings in my life, but the most memorable one was my sister's. My sister and I have been inseparable for our entire lives, so it was a huge deal to me that she was getting married.
-Her wedding was very emotional. My father wept while he walked my sister down the aisle. I also cried like a baby when my sister and her husband exchanged vows. I think it was the first time I realized that she was really getting married. Luckily, I pulled myself together befroe it was time for me to sing. I sang a song called Proposal, which is about happiness and trust in marriage.
+Her wedding was very emotional. My father wept while he walked my sister down the aisle. I also cried like a baby when my sister and her husband exchanged vows. I think it was the first time I realized that she was really getting married. Luckily, I pulled myself together before it was time for me to sing. I sang a song called Proposal, which is about happiness and trust in marriage.
 I had mixed feelings about the wedding. I was happy that she found someone to grow old with, but I was a bit sad that we wouldn't be seeing each other as often as before because she would be moving in with her husband.
 Anyway, the wedding was impressive to me not only because it was very beautiful but also because I experienced lots of firsts. It was the first time someone close to me got married, and it was the first time I ever saw my father cry.
 
@@ -50,4 +50,5 @@ I loved the trip for several reasons. First, this trip was the perfect opportuni
 Well, indicidual preferences differ from person to person, but I think most people prefer to be in the company of their families. That's because when you travel with your family, you get the chance to make wonderful meories and share the joy of new experiences with those you love. Furthermore, you never know when there might be an emergency. If something bad happens, it is much better to be with people who care about you than to be by yourself.
 
 6. What do people do to prepare before going on a holiday?
-To begin with, people look up information on the area that they'll be visiting. Through their research, they can find out what the weather will be like when they visit and whether they shoud get vaccinations or visas. if they don't check this beforehand, they might encounter a number of obstacles. Plus, people make travel arrangements before going away. For instance, booking a hotel and renting a car are commonly done in advance.
+To begin with, people look up information on the area that they'll be visiting. Through their research, they can find out what the weather will be like when they visit and whether they shoude get vaccinations or visas. if they don't check this beforehand, they might encounter a number of obstacles. Plus, people make travel arrangements before going away. For instance, booking a hotel and renting a car are commonly done in advance.
+
