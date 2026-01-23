@@ -12,10 +12,10 @@ Yes, I think group activities are very important. Since most people belong to or
 I most often work with other people when I have a presentaion assignment for my management class. I usually have a couple of such projects per semester. Because they generally require a lot of work and research, four or five students are expected to work on them together.
 
 4. Have you helped a stranger? Why?
-Yes, I helped a lady who was struggling with astroller on some stairs last month. She looked really tired and, at the same time, worried about her baby in the carriage. I went over to her and helped her move it because I thought it was the right thing to do.
+Yes, I helped a lady who was struggling with stroller on some stairs last month. She looked really tired and, at the same time, worried about her baby in the carriage. I went over to her and helped her move it because I thought it was the right thing to do.
 
 5. What do you think about helping people?
-Personally, I think that helping others is great. However, I aslo think that we need to be cautious because there are always people who try to abuse others' goodwill. We should be careful not to fall victim to such bad people's schemes and traps when doing good.
+Personally, I think that helping others is great. However, I also think that we need to be cautious because there are always people who try to abuse others' goodwill. We should be careful not to fall victim to such bad people's schemes and traps when doing good.
 
 6. Do you like to share things?
 I don't exactly like sharing, but I don't mind it when it is necessary. For instance, I'm reluctant to share food in general because I want to enjoy it myself. However, I'm fine with giving up my food if someone is really hungry.
