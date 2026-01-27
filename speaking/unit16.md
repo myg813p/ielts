@@ -12,7 +12,7 @@ I first learned English when I was a kid in elementary school. Our teacher taugh
 I really want to become fluent in Mandarin Chinese. Knowing how to speak Chinese well can really open doors in today's job market. Since a lot of Korean companies trade with Chinese businesses these days, they often look for applicants who are proficient in the language.
 
 4. Which do you think is more difficult, speaking English or reading English?
-I think speaking English is more difficult than reading English text. The reason for this is that reading only requires knowledge of grammar and vocabulary. On the other hand, to be able to speak, a person needs to know and correctly pronounce the words as well.
+I think speaking English is more difficult than reading English text. The reason for this is that reading only requires knowledge of grammar and vocabulary. On the other hand, to be able to spreak, a person needs to know and correctly pronounce the words as well.
 
 5. Do you think handwriting is important?
 Not at all. In my opinion, penmanship is a largely irrelevant skill in today's world. Typing on a computer is much faster and easier for most people. Although it could be useful when writing cards and letters, I don't think it is important for people's everyday lives.
@@ -50,4 +50,5 @@ I was really amused by the conversation. I'd never heard about the romantic trou
 I think most people become tense before presentations because they worry what their audience will think. Most people do not address large groups in their everyday lives. They usually have conversations on a one-on-one basis or with a few other individuals. Therefore, speaking in front of a crowd is an unusual experience. Furthermore, most presentations are given to groups of clients, colleagues, or supervisors. This can make them very important for the presenter's career, which leads to increased nervousness.
 
 6. What are the differences between men and women when it comes to having a conversation?
+
 I know that people have a lot of different opinions about this, but the main conversational difference between the genders seems to be how thoughts and feelings are expressed. On the one hand, men tend to be quite direct and unsentimental. They act as though conversations have an overall purpose and get directly to the point. Women, on the other hand, seem to incorporate more emotions into how they communicate. Their conversations often have more than one purpose and cover a range of ideas and feelings.
