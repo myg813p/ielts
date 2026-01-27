@@ -12,7 +12,7 @@ I first learned English when I was a kid in elementary school. Our teacher taugh
 I really want to become fluent in Mandarin Chinese. Knowing how to speak Chinese well can really open doors in today's job market. Since a lot of Korean companies trade with Chinese businesses these days, they often look for applicants who are proficient in the language.
 
 4. Which do you think is more difficult, speaking English or reading English?
-I think speaking English is more difficult than reading English text. The reason for this is that reading only requires knowledge of grammar and vocabulary. On the other hand, to be able to spreak, a person needs to know and correctly pronounce the words as well.
+I think speaking English is more difficult than reading English text. The reason for this is that reading only requires knowledge of grammar and vocabulary. On the other hand, to be able to speak, a person needs to know and correctly pronounce the words as well.
 
 5. Do you think handwriting is important?
 Not at all. In my opinion, penmanship is a largely irrelevant skill in today's world. Typing on a computer is much faster and easier for most people. Although it could be useful when writing cards and letters, I don't think it is important for people's everyday lives.
