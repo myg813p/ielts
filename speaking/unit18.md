@@ -14,8 +14,6 @@ I think they'll have been discontinued by that time. Nowadays, people can read t
 4. Do you like to see advertisements?
 I'm mostly annoyed by advertisements. When there are commercials on TV, I generally change the channel or walk away to do something else. Even though some are genuinely funny, they become repetitive and boring after seeing them more than once.
 
-
-
 5. Are there any commercials that made you want to buy something?
 There was a TV commercial advertising corn silk tea that made me purchase it. A beautiful actress appeared in the ad and a narrator said people can get fit by drinking this special tea. As a result, I ended up buying more than 10 bottles of it, but nothing happened to my body, unfortunately.
 
@@ -26,16 +24,15 @@ I watch TV every single day. I love to watch TV because there are so many intere
 My favorite TV program of all time is K-PopStar. It's a talent show that searches for undiscovered singers, which is quite similar to American Idol. I love this program because I can see so many excellent young singers and enjoy their talents.
 
 8. How have TV programs changed in recent years?
-I think there are a lot more reality TV shows now than in the past. For example, these days, there are many talent shows and singing cometition shows, which did not exist ten or fifteen years ago. Also, unlike in the past, food and cookery shows that feature celebrites are very much in vogue now.
+I think there are a lot more reality TV shows now than in the past. For example, these days, there are many talent shows and singing comepitition shows, which did not exist ten or fifteen years ago. Also, unlike in the past, food and cookery shows that feature celebrites are very much in vogue now.
 
 PART 2&3
 
 1. Describe a celebrity that you saw on a news program.
 I've seen lots of celebrites on news programs, but the first one that comes to mind is Psy. Psy is a korean singer and comedic performer. He is most famous for the song Gangnam Style, which took the world by storm a few years ago. Despite its lyrics being in Korean, it became famous internatinally, and people around the world inmitated the iconic 'horse-riding dance' featured in it.
-Psy was on the news program I saw jsut after Gangnam style was released.
+Psy was on the news program I saw just after Gangnam style was released.
 He'd been invited on to discuss the phenomenal success of the song. It had just been named YouTube's most viewed video ever, and the song was being played in dance clubs around the world. It even reached number two on the American Billboard music chart.
 I was really proud when I saw Psy on television because he was beaking new ground with his song. No Korean artist had ever been so successful abroad. I was also impressed by his humble attitude. Even though he had become an international superstar, he didn't seem arrogant at all. He just said he was lucky and glad to share his music with lots of people.
-
 
 2. What are the advantages and disadvantages of being a well-known person?
 One major benefit of being famous is that it can be highly profitable, financially and otherwise. For example, celebrities are often given the opportunity to endorse, or lend their names to, new products. This can earn them huge sums of money. They also generally receive special treatment and maintain VIP status. On the other hand, fame can also have downsides, such as the loss of privacy. For instance, celebrities and politicians are often stalked by paparazzi and appear in the media because of things they've done or said in private.
@@ -54,3 +51,4 @@ There are several ways that I tell people good news. But the method I prefer mos
 
 6. How has the news changed from the past?
 The most significant change the news has undergone is that it is now accessible online. Before, people had to subscribe to newspapers or watch television news reports to get information. This meant that they sometimes did not learn about an event until hours after it occurred. In contrast, news reports are now instantly published online and constantly updated. Furthermore, with the invention of smartphones, people can get their news anywhere. This is especially true in Korea, where nearly all adults have these devices.
+
