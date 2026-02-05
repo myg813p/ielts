@@ -52,3 +52,4 @@ There are so many environmental concerns out there, but I think the biggest one 
 
 6. What can we do to improve the environment?
 To begin with, we can switch to renewable energy. Fossil fuels, such as coal and petroleum, are major contributors to environmental pollution. Switching to clean, renewable energy sources like solar and wind would reduce environmental damage. In addition, we can refrain from wasting energy. For example, instead of driving, people can use public transportation, walk, or ride bikes to get where they need to go.
+
