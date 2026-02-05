@@ -15,7 +15,7 @@ What I detest about my city is the traffic. I live in Seoul, where the congestio
 I'm pretty satisfied with the public transportion in my area. It is quite reliable and fast, especially the subway system. Some people worry that the tickets are getting too expensive. However, I think they are rather cheap compared to the transportation services in other countries.
 
 5. What things can people do in your area?
-I live in an urban area, so there are many good places for attending various cultural events. For example, people can attend art exhibitions and concerts in various areas. Insa-ding, for instance, is a district in my city that is famous for having many traditional art galleries and shows.
+I live in an urban area, so there are many good places for attending various cultural events. For example, people can attend art exhibitions and concerts in various areas. Insa-dong, for instance, is a district in my city that is famous for having many traditional art galleries and shows.
 
 6. Tell me about your hometown.
 My hometown is Busan, which is the largest port city in Korea. It is located on the south end of the Korean Peninsula. Not only does it have many skyscrapers, but it also has a number of great beaches.
@@ -51,3 +51,4 @@ One major difference is that city life is more convenient. Cities have public tr
 
 6. What sorts of problems do most cities have?
 Cities face many different kinds of problems, but I think the biggest concern is overcrowding. This is a huge problem because it causes traffic jams as well as discomfort for people who have to commute using public transportation. In addition, overcrowding causes severe housing problems. It especially makes real estate prices skyrocket.
+
