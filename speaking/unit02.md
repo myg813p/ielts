@@ -17,14 +17,13 @@ I like my bedroom the most. There are a lot of cushions in it, so it is really s
 5. What can you see from the window of your house or apartment?
 I can see other apartment buildings and the street from my window. There are also several shops directly across from my house. To be more specific, there is a florist, a small grocery store, and a laundry service.
 
-6. How long have you been lving there?
+6. How long have you been living there?
 I've been living there for 2 years now. I moved to my apartment right after graduating from high school. That's because I had to find a new place near campus, since my university is really far from my parents' house.
 
 7. Will you keep living there in the future?
 To be honest, I have no idea. I don't have any plans to move right now. However, if I get a new job or get married, I might need to find an apartment somewhere else.
 
 8. Do you want to live near your family when you get your own house?
-
 Yes, I'd love to. Even after I get my own place, I want to stay near my family if I can. That's because I don't want to spend hours on the road whenever I visit my parents. Besides, if I lived near her house, my mom would bring me hot food from time to time.
 
 PART 2&3
@@ -52,6 +51,7 @@ I think people in my country generally prefer to live in apartments. This is bec
 
 6. Some poeple prefer living in a small house to living in a big house. Why is that?
 The specific reasons would be different from person to person, but I think people prefer smaller homes because they are far easier to maintain. They require much less time and effort to clean, and repairs are usually relatively minor. Also, smaller homes are less expensive. This makes them a much better choice for people who are on a budget.
+
 
 
 
